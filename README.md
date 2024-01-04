@@ -1,3 +1,5 @@
+![octocat-17043936941561](https://github.com/englishj26/englishj26/assets/155670593/10df6de4-7944-48a8-94a6-4917e7b9d941)
+
  Hi there 👋 I am @englishj26
 
 
@@ -10,5 +12,3 @@ Here are some ideas to get you started:
 - 📫 How to reach me: englishj26@wpsma.org
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am in 10th grade
-![octocat-17043936941561](https://github.com/englishj26/englishj26/assets/155670593/10df6de4-7944-48a8-94a6-4917e7b9d941)
-
